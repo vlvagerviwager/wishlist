@@ -9,3 +9,4 @@ Kind friends and family have asked where they can donate to, either on their or 
 * [Hong Kong Free Press](https://www.hongkongfp.com/support-hkfp/)
 * [Greenpeace](https://www.greenpeace.org/international/act/donate/)
 * [Abortion Rights Campaign (Ireland)](https://www.abortionrightscampaign.ie/donate/)
+* [UNICEF Ireland](https://www.unicef.ie/donate/#1)
