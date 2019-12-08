@@ -10,3 +10,4 @@ I am privileged enough to attempt to live a minimalist lifestyle and do not want
 * [Greenpeace](https://www.greenpeace.org/international/act/donate/)
 * [Abortion Rights Campaign (Ireland)](https://www.abortionrightscampaign.ie/donate/)
 * [UNICEF Ireland](https://www.unicef.ie/donate/#1)
+* Local arts
