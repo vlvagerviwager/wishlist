@@ -7,7 +7,7 @@ I am privileged enough to attempt to live a minimalist lifestyle and do not want
 * [American Civil Liberties Union (ACLU)](https://action.aclu.org/give/donate-to-aclu-multistep)
 * [Capuchin Day Centre (Ireland)](https://www.capuchindaycentre.ie/Capuchin_Day_Centre_2013/Capuchin_Day_Centre_-_Donations.html)
 * [Little Hill Animal Rescue and Sanctuary (Ireland)](https://www.paypal.com/donate/?token=GaSpUp9vJmSCWJniLn-4zizrwvACZRB-kyyE1v6IyO8lV1T04vvB3nTchmCwGw5-4_YucG&country.x=IE&locale.x=)
-* [Hong Kong Free Press](https://www.hongkongfp.com/support-hkfp/)
 * [Greenpeace](https://www.greenpeace.org/international/act/donate/)
 * [Abortion Rights Campaign (Ireland)](https://www.abortionrightscampaign.ie/donate/)
+* [Hong Kong Free Press](https://www.hongkongfp.com/support-hkfp/)
 * Local arts
