@@ -1,4 +1,4 @@
-# Wishlist
+# 🎁 Wishlist
 
 I am privileged enough to attempt to live a minimalist lifestyle and do not want to receive any gifts or objects for life events and holidays. Kind friends and family have asked where they can donate to, either on their or my behalf, in place of gifts. If you wish to get me something, thank you! Please find below a list of charities I support and have donated to:
 
