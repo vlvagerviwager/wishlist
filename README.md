@@ -5,7 +5,7 @@ I am privileged enough to attempt to live a minimalist lifestyle and do not want
 * [Women on Web](https://www.womenonweb.org/en/donate) (international)
 * [Trees on the Land](https://www.treesontheland.com/donate-sponsor) (Ireland)
 * [DSPCA](https://www.dspca.ie/donate/) (Ireland)
-* [Abortion Support Network](https://www.asn.org.uk/donate/)
+* [Abortion Support Network](https://www.asn.org.uk/donate/) (international)
 * [Médecins Sans Frontières (Doctors Without Borders)](https://www.msf.org) (international)
 * [Electronic Frontier Foundation](https://supporters.eff.org/donate/join-4) (international)
 * [American Civil Liberties Union (ACLU)](https://action.aclu.org/give/donate-to-aclu-multistep) (international)
